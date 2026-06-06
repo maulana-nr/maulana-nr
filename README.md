@@ -25,8 +25,8 @@ I'm an IT Student at UIN Malang who is passionate about technology, especially i
 ---
 
 ## How to Reach Me
-- GitHub: https://github.com/Nakamura55
-- Email: maulanaroyale46@gmail.com
+- GitHub: https://github.com/maulana-nr
+- Email: maulananurrokhim46@gmail.com
 
 ---
 
